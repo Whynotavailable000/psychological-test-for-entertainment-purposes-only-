@@ -1,1 +1,1 @@
-# psychological-test
+# psychological-test-entertainment-use-only
